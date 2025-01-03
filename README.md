@@ -1,4 +1,6 @@
-## Hi there 👋
+## 杏耀注册网址|杏耀总代理|杏耀开户-最新消息-杏耀平台
+
+<https://xingyaogj.github.io>
 
 <!--
 **xingyaogj/xingyaogj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
